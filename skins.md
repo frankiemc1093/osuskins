@@ -9,6 +9,8 @@
 # Old Hit Crcle
 ![image](https://github.com/user-attachments/assets/8d2a55cf-9dd4-4fa9-b8e0-7803a54aadde)
 Instafade Unavalible as the download is courupted somehow
+Non Weeb Version Also Avalible
+Some Alternates Included in the root of the skin
 
 # frankiemc1093 v2 [Download](https://drive.google.com/drive/u/0/folders/1IVpTr6ePd4HwmREXAl7dHiOGiqcG7tov)
 ![image](https://github.com/user-attachments/assets/03da6ea8-42d6-492c-9e1a-97f6e27d9ded)
