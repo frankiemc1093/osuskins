@@ -17,6 +17,10 @@
 ![image](https://github.com/user-attachments/assets/a2c11602-dd6e-40e5-bbc4-42b92fd063b9)
 
 # Resault Screen + Back Button(Non Weeb)
+![image](https://github.com/user-attachments/assets/3a5a0510-5a41-43b4-9a6e-211829e626b6)
+
+# Mod Icons
+![image](https://github.com/user-attachments/assets/aa4f483e-f43c-4d60-8445-625636f0a5e4)
 
 
 
