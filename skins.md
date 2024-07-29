@@ -17,7 +17,7 @@ Some Alternates Included in the root of the skin
 # frankiemc1093 v2 [Download](https://drive.google.com/drive/u/0/folders/1IVpTr6ePd4HwmREXAl7dHiOGiqcG7tov)
 ![image](https://github.com/user-attachments/assets/03da6ea8-42d6-492c-9e1a-97f6e27d9ded)
 
-# frankiemc1093 v3 (Broken When Not using @2x elements as the skin is unfinished but still playable) [Download] (https://drive.google.com/drive/u/0/folders/1KXwlcTCdpvpLh0bGAZm4n52ZZNl55UD4)
+# frankiemc1093 v3 (Broken When Not using @2x elements as the skin is unfinished but still playable) [Download](https://drive.google.com/drive/u/0/folders/1KXwlcTCdpvpLh0bGAZm4n52ZZNl55UD4)
 ![image](https://github.com/user-attachments/assets/d57cdcc0-3abc-4f93-b871-4e18901bfd11)
 Many Alternates in the Root of the skin
 
