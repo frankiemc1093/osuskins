@@ -43,5 +43,38 @@ Highly Customisable with Plenty of alternates in the root of the skin
 # The Journey of Elaina but other skins (very cool) [Download](https://drive.google.com/drive/u/0/folders/1h-dYn736KY_9XNC5oq2Os3QEFFom0dTM)
 
 Bacon Boi
+![Bacon Boi Gameplay](https://github.com/user-attachments/assets/acf04d53-2e89-4db1-ba7b-3671d7c37408)
+
+Freedom Dive
+![Freedom Dive Gameplay](https://github.com/user-attachments/assets/e4afbbb0-86bb-49ef-9b40-b98f67f70413)
+
+Idke
+![idke Gameplay](https://github.com/user-attachments/assets/05f3cd7e-cf86-4304-8c15-291674848727)
+
+
+Pink +HDDT (ik its purple i was very sleepy)
+![Pink +HDDT (Rafis) Gameplay](https://github.com/user-attachments/assets/6e75f9f1-1747-4c29-a630-3900bc283663)
+
+Planets
+![Planets Gameplay](https://github.com/user-attachments/assets/2e209845-c646-4a46-a655-8731da5e0385)
+
+Whitecat
+![Whitecat Gameplay](https://github.com/user-attachments/assets/3555ae24-6c29-4017-a9cd-78ce660a2520)
+
+# BTMC Freedom Dive (frankiemc1093 edit V1 (V2 Edit Coming when i get back home)) [Download](https://drive.google.com/file/d/1KLZloc8UdS6flyqNUH79_CqqqwB3DcEK/view?usp=sharing)
+![image](https://github.com/user-attachments/assets/a3ce6f53-d9b5-447a-bbce-4cb547b88a14)
+
+# XooMoon (frankiemc1093 edit) [Download](https://drive.google.com/file/d/1_f7RbCXebI3MIovsXV__GKiQnRiy_y1i/view?usp=sharing)
+![image](https://github.com/user-attachments/assets/f70aabc6-ca29-4fcd-ad21-1d3a0cf537a7)
+
+# Whitecat + Elaina [Download](https://drive.google.com/file/d/1TrtL-UZojm2j0J02VqRZkAo7YPSDvNky/view?usp=sharing)
+i dont really use this skin much i just use my other whitecat edit lmao
+![image](https://github.com/user-attachments/assets/e48a4f80-a89a-40f6-b420-f953a35de807)
+
+
+
+
+
+
 
 
