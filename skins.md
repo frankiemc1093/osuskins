@@ -4,22 +4,19 @@
 
 # My Main Skins
 
+
 # frankiemc1093 v1.5 [Downloads](https://drive.google.com/drive/u/0/folders/1T1EpLRKYwOXufhaqSjeMmd3NJADQ2Hge) [All Versions 1-1.5](https://drive.google.com/drive/u/0/folders/1YVwn7imt80GSZkNeQhJ8B_N7os745Uvk)
 
 # New Hit Circle [(This Scorebar is a Seperate Download)](https://drive.google.com/drive/u/0/folders/11jYanPIhtsl3r5OFp-Q-H0SS90LVoj_B)
-![image](https://github.com/user-attachments/assets/1c9ac96e-4d98-4039-99f1-c6cf11c0acb5)
+![image](https://github.com/user-attachments/assets/f0c0f1ee-876d-485c-a5bb-22cfe4d26c9d)
 
 # Old Hit Crcle
-![image](https://github.com/user-attachments/assets/f448da22-ca96-4d81-93aa-3d06c5308d03)
+![image](https://github.com/user-attachments/assets/8d2a55cf-9dd4-4fa9-b8e0-7803a54aadde)
 
-# Resault Screen + Back Button
-![image](https://github.com/user-attachments/assets/a2c11602-dd6e-40e5-bbc4-42b92fd063b9)
+# Instafade Unavalible as the download is courupted somehow
 
-# Resault Screen + Back Button(Non Weeb)
-![image](https://github.com/user-attachments/assets/3a5a0510-5a41-43b4-9a6e-211829e626b6)
-
-# Mod Icons
-![image](https://github.com/user-attachments/assets/aa4f483e-f43c-4d60-8445-625636f0a5e4)
+# frankiemc1093 v2 [Download](https://drive.google.com/drive/u/0/folders/1IVpTr6ePd4HwmREXAl7dHiOGiqcG7tov)
+![image](https://github.com/user-attachments/assets/03da6ea8-42d6-492c-9e1a-97f6e27d9ded)
 
 
 
