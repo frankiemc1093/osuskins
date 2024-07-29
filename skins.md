@@ -1,6 +1,6 @@
 # [My google Drive](https://drive.google.com/drive/folders/1ekRWLnVyYvitC5rauGxj23_P5Yi3B32-)
 # [My Osu Profile](https://osu.ppy.sh/users/16083340)
-# Quality Varies especially with my main skins but im only one person and they work for me also im not very good at screenshots so ill be borrowing screenshots from other skin lists when possible
+Quality Varies especially with my main skins but im only one person and they work for me also im not very good at screenshots so ill be borrowing screenshots from other skin lists when possible
 
 # My Main Skins
 # frankiemc1093 v1.5 [Downloads](https://drive.google.com/drive/u/0/folders/1T1EpLRKYwOXufhaqSjeMmd3NJADQ2Hge) [All Versions 1-1.5](https://drive.google.com/drive/u/0/folders/1YVwn7imt80GSZkNeQhJ8B_N7os745Uvk)
