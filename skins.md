@@ -15,5 +15,5 @@ Some Alternates Included in the root of the skin
 # frankiemc1093 v2 [Download](https://drive.google.com/drive/u/0/folders/1IVpTr6ePd4HwmREXAl7dHiOGiqcG7tov)
 ![image](https://github.com/user-attachments/assets/03da6ea8-42d6-492c-9e1a-97f6e27d9ded)
 
-
-
+#rrtyui Remake [Download](https://drive.google.com/file/d/11Wa6REGe7Cj7BkSU46vN82bPTSrMoWus/view?usp=drive_link)
+![image](https://github.com/user-attachments/assets/2d48b133-a631-40e9-825f-ea0e04c7b55b)
