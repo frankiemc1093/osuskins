@@ -25,5 +25,5 @@ Many Alternates in the Root of the skin
 
 
 # rrtyui Remake [Download](https://drive.google.com/file/d/11Wa6REGe7Cj7BkSU46vN82bPTSrMoWus/view?usp=drive_link)
-![image](https://github.com/user-attachments/assets/2d48b133-a631-40e9-825f-ea0e04c7b55b)
+![image](https://github.com/user-attachments/assets/f40213db-3dcc-4245-887c-c9243fe2343e)
 Highly Customisable with Plenty of alternates in the root of the skin
