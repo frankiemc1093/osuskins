@@ -71,6 +71,7 @@ Whitecat
 i dont really use this skin much i just use my other whitecat edit lmao
 ![image](https://github.com/user-attachments/assets/e48a4f80-a89a-40f6-b420-f953a35de807)
 
+More to come but im finnished for today. Just need to add my default edit skin then link other skins i use which is much easier as i dont have to take screenshots of each one.
 
 
 
