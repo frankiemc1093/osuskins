@@ -3,15 +3,11 @@
 Quality Varies especially with my main skins but im only one person and they work for me also im not very good at screenshots so ill be borrowing screenshots from other skin lists when possible
 
 # My Main Skins
-# frankiemc1093 v1.5 [Downloads](https://drive.google.com/drive/u/0/folders/1T1EpLRKYwOXufhaqSjeMmd3NJADQ2Hge) [All Versions 1-1.5](https://drive.google.com/drive/u/0/folders/1YVwn7imt80GSZkNeQhJ8B_N7os745Uvk)
+# frankiemc1093 v1.5 [Downloads](https://drive.google.com/drive/u/0/folders/1T1EpLRKYwOXufhaqSjeMmd3NJADQ2Hge) [All Versions 1-1.5](https://drive.google.com/drive/u/0/folders/1YVwn7imt80GSZkNeQhJ8B_N7os745Uvk) also i fixed some stuff wrong with this skin so it will be slightly different
 
 New Hit Circle [(This Scorebar is a Seperate Download)](https://drive.google.com/drive/u/0/folders/11jYanPIhtsl3r5OFp-Q-H0SS90LVoj_B)
 
 ![image](https://github.com/user-attachments/assets/f0c0f1ee-876d-485c-a5bb-22cfe4d26c9d)
-
-Old Hit Crcle
-
-![image](https://github.com/user-attachments/assets/8d2a55cf-9dd4-4fa9-b8e0-7803a54aadde)
 Instafade Unavalible as the download is courupted somehow
 
 Non Weeb Version Also Avalible
