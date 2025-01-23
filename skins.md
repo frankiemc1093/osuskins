@@ -46,9 +46,12 @@ https://github.com/user-attachments/assets/5fd13571-a566-4297-bee8-edd80abb2d5c
 <details>
 
 <summary>frankiemc1093 NM1 (Use this mostly for HR Aim Slop and there is a purple colour in the skin.ini which i use bot with and without the white colour depends how im feeling)</summary>
+
 [Download](https://drive.google.com/file/d/1XKRXrapvdEavv_4w-pCshOMGE3JmgFk2/view?usp=sharing)
 
 https://github.com/user-attachments/assets/b7eb677e-1fca-48d6-a4f3-cac9fec4c66c
 </details>
+
+[All Skins not listed here](https://drive.google.com/drive/folders/1ekRWLnVyYvitC5rauGxj23_P5Yi3B32-)
 
 
