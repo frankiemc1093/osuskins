@@ -20,7 +20,7 @@ https://github.com/user-attachments/assets/a60247c8-ca56-4486-acd3-a50cc2b2ab59
 
 <summary>Frankie+AzerinoV1.1</summary>
 
-[Download](https://drive.google.com/file/d/1QudU7sbnLqOKwmFymvApIh9BxTqpu3J3/view?usp=sharing)
+[Download](https://drive.google.com/file/d/1JSoO2H9itjJbGTJm0zjBooXzFRapEDw3/view?usp=drive_link)
 
 https://github.com/user-attachments/assets/81a5a320-39d6-4bad-a283-57f52aa8df5b
 </details>
