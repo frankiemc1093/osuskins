@@ -18,11 +18,11 @@ https://github.com/user-attachments/assets/a60247c8-ca56-4486-acd3-a50cc2b2ab59
 
 <details>
 
-<summary>Frankie+Azerino</summary>
+<summary>Frankie+AzerinoV1.1</summary>
 
-[Download](https://drive.google.com/file/d/1NF-c2VreTr2nsqS_dxtTutC9QyMW2UY8/view?usp=sharing)
+[Download](https://drive.google.com/file/d/1QudU7sbnLqOKwmFymvApIh9BxTqpu3J3/view?usp=sharing)
 
-https://github.com/user-attachments/assets/0c9ab1ff-7870-4118-9dd0-31fb9f278157
+https://github.com/user-attachments/assets/81a5a320-39d6-4bad-a283-57f52aa8df5b
 </details>
 
 <details>
