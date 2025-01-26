@@ -50,6 +50,14 @@ https://github.com/user-attachments/assets/5fd13571-a566-4297-bee8-edd80abb2d5c
 [Download](https://drive.google.com/file/d/1XKRXrapvdEavv_4w-pCshOMGE3JmgFk2/view?usp=sharing)
 
 https://github.com/user-attachments/assets/b7eb677e-1fca-48d6-a4f3-cac9fec4c66c
+
+<details>
+
+<summary>maniaskin</summary>
+
+[Download](https://drive.google.com/file/d/1Ut2taU6pfrW3dYqb_71gv4-eo6mD8viz/view?usp=sharing) [version with no hitsounds](https://drive.google.com/file/d/1Zrk5eJmHogfqovMrJDijtCb4K2g4w6to/view?usp=sharing)
+
+https://github.com/user-attachments/assets/0adda044-5795-430b-b4d0-55f9f0cd9d5f
 </details>
 
 [All Skins not listed here](https://drive.google.com/drive/folders/1ekRWLnVyYvitC5rauGxj23_P5Yi3B32-)
