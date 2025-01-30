@@ -57,9 +57,11 @@ https://github.com/user-attachments/assets/b7eb677e-1fca-48d6-a4f3-cac9fec4c66c
 <summary>Aristia HD Remake</summary>
 
 [Download](https://drive.google.com/file/d/1jFalxHOBlmKGFzl4dlvRLJZg0shVkM4S/view?usp=drive_link)
+
 (I didnt upscale any of these elements i just put them together from other upscales of the skin but some were just not close enough to the original in my opinion)
 
 https://github.com/user-attachments/assets/b279142c-96db-4a1c-9a45-1475aa4ce034
+
 Cursor trails and the old slider reverse arrows are in the extras folder. Also no rainbow approach circles cause be fr who is using the original aristia skin over the varvalian version's
 </details>
 
