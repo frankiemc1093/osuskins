@@ -73,3 +73,5 @@ https://github.com/user-attachments/assets/1b46fb32-f1eb-4a17-a593-791ae435fd15
 </details>
 
 [All Skins not listed here](https://drive.google.com/drive/folders/1ekRWLnVyYvitC5rauGxj23_P5Yi3B32-)
+
+Also yes alot of AI in these skins for upscaling which in my opinion is one of the very few good things about AI but the rest is bad
