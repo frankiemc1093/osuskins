@@ -1,3 +1,5 @@
+Sometimes the videos may not load just refresh
+
 <details>
 
 <summary>BlooMoon Aristia Edit</summary>
