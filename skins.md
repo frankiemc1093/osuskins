@@ -1,3 +1,5 @@
+
+https://github.com/user-attachments/assets/b558086b-e680-4878-8394-37b7e95cfc37
 <details>
 
 <summary>BlooMoon Aristia Edit</summary>
@@ -52,7 +54,15 @@ https://github.com/user-attachments/assets/5fd13571-a566-4297-bee8-edd80abb2d5c
 https://github.com/user-attachments/assets/b7eb677e-1fca-48d6-a4f3-cac9fec4c66c
 </details>
 
+<details>
 
+<summary>Aristia HD Remake</summary>
+
+[Download](https://drive.google.com/file/d/1jFalxHOBlmKGFzl4dlvRLJZg0shVkM4S/view?usp=drive_link)
+(I didnt upscale any of these elements i just put them together from other upscales of the skin but some were just not close enough to the original in my opinion)
+
+https://github.com/user-attachments/assets/b279142c-96db-4a1c-9a45-1475aa4ce034
+</details>
 
 <details>
 
