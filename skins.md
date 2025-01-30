@@ -1,5 +1,3 @@
-
-https://github.com/user-attachments/assets/b558086b-e680-4878-8394-37b7e95cfc37
 <details>
 
 <summary>BlooMoon Aristia Edit</summary>
